@@ -27,6 +27,8 @@ $\color{#b2bde2}\textsf{i struggle to focus, understand and remember simple thin
  $\color{#b2bde2}\textsf{take your time with me! Other than that, i love interacting with people and making}$
 
   $\color{#b2bde2}\textsf{friends! Even though i know a lot of people, i do my best to spend time with everyone!}$
+
+  $\color{#b2bde2}\textsf{I have an amazinf lovely wife so dont flirt w me ,, ok ?? ok. thank yew. dont b weird.}$
   
    $\color{#b2bde2}\textsf{thank you!}$ [fans-town](https://github.com/fans-town) [title-town](https://github.com/title-town) [pt-awards](https://github.com/pt-awards) [pt-players](https://github.com/pt-players) [hall-of-media](https://github.com/pt-hall-of-media) [contributers](https://github.com/pt-contributers) [awesomeness](https://github.com/pt-of-awesomeness) $\color{#b2bde2}\textsf{+}$
 </details></p>
