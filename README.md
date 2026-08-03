@@ -22,6 +22,8 @@
  
  $\color{#b2bde2}\textsf{HELLO!!! Im}$ $\color{#cadbdf}\textsf{Planet}$ $\color{#b2bde2}\textsf{or}$ $\color{#cadbdf}\textsf{Mars}$ $\color{#b2bde2}\textsf{and i go by}$ $\color{#cadbdf}\textsf{she/any}$ $\color{#b2bde2}\textsf{:-3}$ $\color{#b2bde2}\textsf{Im a minor and i have bipolar 2.}$
 
+$\color{#b2bde2}\textsf{im a planetlord c'link (not the person, his oc.) kin doubles please dniuf. im a hypocrite ik}$
+
 $\color{#b2bde2}\textsf{i struggle to focus, understand and remember simple things. Please dont be angry,}$
 
  $\color{#b2bde2}\textsf{take your time with me! Other than that, i love interacting with people and making}$
