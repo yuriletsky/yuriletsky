@@ -11,7 +11,7 @@
 
 ㅤ
 
-ㅤㅤㅤ<a href="https://planetlordd.atabook.org" target="_blank"><img align="center" src="https://i.ibb.co/bVpp8SG/image-2026-07-31-214608547.png" alt="ata" width="15%"/></a>ㅤ <a href="https://rentry.co/planetlords" target="_blank"><img align="center" src="https://i.ibb.co/hGGZNq8/image-2026-07-31-214850206.png" alt="rentry" width="15%"/></a>ㅤ <a href="https://meqw.straw.page" target="_blank"><img align="center" src="https://i.ibb.co/7dV8NS2s/image-2026-07-31-215335517.png" alt="straw" width="14%"/></a>
+ㅤㅤㅤ<a href="https://planetlordd.atabook.org" target="_blank"><img align="center" src="https://i.ibb.co/bVpp8SG/image-2026-07-31-214608547.png" alt="ata" width="15%"/></a>ㅤ <a href="https://rentry.co/overtonight" target="_blank"><img align="center" src="https://i.ibb.co/hGGZNq8/image-2026-07-31-214850206.png" alt="rentry" width="15%"/></a>ㅤ <a href="https://meqw.straw.page" target="_blank"><img align="center" src="https://i.ibb.co/7dV8NS2s/image-2026-07-31-215335517.png" alt="straw" width="14%"/></a>
 
 ㅤ
 
