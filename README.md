@@ -32,7 +32,7 @@ $\color{#b2bde2}\textsf{i struggle to focus, understand and remember simple thin
 
   $\color{#b2bde2}\textsf{I have the most amazing girlfriend so dont attempt to flirt with me, thank you!}$
   
-   $\color{#b2bde2}\textsf{thank you!}$ [fans-town](https://github.com/fans-town) [title-town](https://github.com/title-town) [pt-awards](https://github.com/pt-awards) [pt-players](https://github.com/pt-players) [hall-of-media](https://github.com/pt-hall-of-media) [contributers](https://github.com/pt-contributers) [awesomeness](https://github.com/pt-of-awesomeness) [pt-nominations](https://github.com/ponytown-nominations) [charactersofpt](https://github.com/charactersofpt) [cosplaytown](https://github.com/cosplaytown) [style-town](https://github.com/style-town) [pt-fashion](https://github.com/pt-fashion) $\color{#b2bde2}\textsf{+}$
+   $\color{#b2bde2}\textsf{thank you!}$ [fans-town](https://github.com/fans-town) [title-town](https://github.com/title-town) [pt-awards](https://github.com/pt-awards) [pt-players](https://github.com/pt-players) [hall-of-media](https://github.com/pt-hall-of-media) [contributers](https://github.com/pt-contributers) [awesomeness](https://github.com/pt-of-awesomeness) [pt-nominations](https://github.com/ponytown-nominations) [charactersofpt](https://github.com/charactersofpt) [cosplaytown](https://github.com/cosplaytown) [style-town](https://github.com/style-town) [pt-fashion](https://github.com/pt-fashion) [kaotown](https://github.com/kaotown) $\color{#b2bde2}\textsf{+}$
 </details></p>
 
 ㅤ
